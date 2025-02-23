@@ -1,4 +1,4 @@
-### 👋 Hey there! I'm [Your Name]  
+### 👋 Hey there! I'm Sandipan  
 Mathematics major at NISER Bhubaneswar, occasionally convincing computers to do my bidding.  
 
 #### 🔧 What I Tinker With:
